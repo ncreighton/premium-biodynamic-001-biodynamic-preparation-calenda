@@ -1,0 +1,2 @@
+# premium-biodynamic-001-biodynamic-preparation-calenda
+Tired of missing the exact cosmic window for stirring horn manure or turning your compost pile? The Biodynamic Preparation Calendar Compost Log ends the guesswork by syncing your preparation dates with Maria Thun's biodynamic rhythms, so every batch is made at peak potency.  This Notion template eliminates scattered notes and forgotten dates by com
